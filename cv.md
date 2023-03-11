@@ -5,7 +5,7 @@
 **Contact Information**:\
 **Phone**: +393495849807 \
 **E-mail**: skilet.skilet.9882@gmail.com\
-**Telegram**: @dsfsdfdsf
+**Telegram**: @Rastvor4ik So shes
 ***
 **Briefly About Myself**:\
 
